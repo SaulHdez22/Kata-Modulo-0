@@ -1,1 +1,0 @@
-# Kata-Modulo-0
